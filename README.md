@@ -6,7 +6,7 @@
 
 【links】tg://resolve?domain=ModXPro【links】
 
-【ver】1【ver】
+【ver】2【ver】
 
 【alert】
 THE SELLER OF YOUR INDONESIA DOESN'T GIVE ME PAYMENT.
