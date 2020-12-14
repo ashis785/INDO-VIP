@@ -1,4 +1,4 @@
-【pass】fuckindo_scammer【pass】
+【pass】fuckindo_scammerbdbdbshebevwsveidbcbc【pass】
 
 【version】1.0【version】
 
@@ -9,6 +9,8 @@
 【ver】2【ver】
 
 【alert】
+
+FUCK YOU INDONESIA SCAMMER WHY YOU OPEN APP YOU NEED TO GIVE PUSSY OF. YOUR MOTHER HERE ??😂😂😂
 THE SELLER OF YOUR INDONESIA DOESN'T GIVE ME PAYMENT.
 
 FINALLY CHEAT STOPPED BECAUSE I AM NOT RECIVED PAYMENT.
